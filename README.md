@@ -1,2 +1,2 @@
 # Assalamu Alaikum 
-## *Welcome to my github profile. Know me more  [here](https://www.facebook.com/uzzalahamedrobin)*
+## *Welcome to my GitHub profile. Know me more  [here](https://www.linkedin.com/in/prouzzal/)*
